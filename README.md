@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Pratyush0015
-- 👀 I’m interested in learning new things if I found it is interesting.
+- 👀 I’m interested in learning new things if I found it interesting.
 - 🌱 I’m currently trying to know how to use github.
 - 💞️ I’m looking to collaborate on some easy projects for beginners.
 - 📫 How to reach me => through email Patelpratyush444@gmail.com
